@@ -1,7 +1,7 @@
-### Hi My name is Bas or call me Complete
+### Hi My name is Maou or call me Complete
 
 
-- 😉 I'm studying at Debsirin School
+- 😉 I'm studying at Mahasarakham University
 - 🌱 I’m currently learning everything 🤣
 
 
